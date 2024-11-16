@@ -1,2 +1,22 @@
 # indigo-cautious-barnacle
 Right light, truth's path. Stand tall, grow. Seek pure word
+
+1. [**The Creation**](#)
+2. [**The Slaves**](#)
+3. [**The Scientist**](#)
+4. [**The Enuma Elish**](#)
+5. [**The Enclosed Garden**](#)
+6. [**The Human Beast**](#)
+7. [**The Living Soul**](#)
+8. [**The Seed of Nakhash**](#)
+9. [**Cain and Abel**](#)
+10. [**Disagreeableness**](#)
+11. [**The Secrets of Adafa**](#)
+12. [**Tablet of Anzu**](#)
+13. [**Generation of Abraham**](#)
+14. [**The Story of Noah**](#)
+15. [**The Christians**](#)
+16. [**The Underworld**](#)
+17. [**Epic of Gilgamesh**](#)
+18. [**Tablet of Etana**](#)
+19. [**Murduk**](#)
