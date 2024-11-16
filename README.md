@@ -9,7 +9,7 @@ Right light, truth's path. Stand tall, grow. Seek pure word
 6. [**The ANIMATING**](#)
 7. [**The RESTORING**](#)
 
-8. # **The Receiver's Message:**
+8. #### **The Receiver's Message:**
 
 #Rise
    (indicating the call to action, the resurrection, the Phoenix-like rise from the ashes, the coming forth from the tomb, the awakening)
